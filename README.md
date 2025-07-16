@@ -1,4 +1,3 @@
-# melikarahmaniresume
 
 RAHMANI MELIKA
 ========
